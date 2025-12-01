@@ -8,7 +8,7 @@
 
 <div align="center">
 
-ALSO [DECORATE MY TREE!](https://colormytree.me/2025/01JEKBQX92KGQAR566KD69EQQP)
+ALSO [DECORATE MY TREE!](https://decomytree.com/home?hashedId=Q_AAYVsEoeEa)
 
 </div>
 
