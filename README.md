@@ -3,8 +3,13 @@
   <img src="https://files.catbox.moe/e81bfq.png" width=450 />
 </p>
 
-<p align="center">sign ata !</p>
-<p align="center">https://yourivan.atabook.org</p>
+
+<div align="center">
+
+[sign ata!](https://yourivan.atabook.org)
+
+</div>
+
 
 <div align="center">
 
