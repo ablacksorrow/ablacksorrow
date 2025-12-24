@@ -6,14 +6,8 @@
 
 <div align="center">
 
-[sign ata!](https://yourivan.atabook.org)
+[atabook](https://yourivan.atabook.org)     ✦     [rentry](https://rentry.co/ibannyies?scrlybrkr=89fa234e)
 
 </div>
 
-
-<div align="center">
-
-ALSO [DECORATE MY TREE!](https://decomytree.com/home?hashedId=Q_AAYVsEoeEa)
-
-</div>
 
