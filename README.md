@@ -1,6 +1,6 @@
-<p align="center">haii feel free to interact ^_^</p>
+<p align="center">my  wish ,  to  live  in  you  like  parasite</p>
 <p align="center">
-  <img src="https://files.catbox.moe/e81bfq.png" width=450 />
+  <img src="https://files.catbox.moe/m9gnfj.png" width=450 />
 </p>
 
 
