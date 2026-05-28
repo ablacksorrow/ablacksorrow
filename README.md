@@ -6,7 +6,7 @@
 
 <div align="center">
 
-[atabook](https://yourivan.atabook.org)     ✦     [rentry](https://rentry.co/ibannyies?scrlybrkr=89fa234e)
+[atabook](https://yourivan.atabook.org)     ✦     [rentry](https://rentry.co/ibannyies?scrlybrkr=89fa234e)     ✦     [strawpage](https://adoretill.straw.page/)
 
 </div>
 
