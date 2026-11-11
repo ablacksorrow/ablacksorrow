@@ -11,5 +11,5 @@
 </div>
 
 <p align="center">ଘ(੭´꒳`)੭ °* ੈ‧₊˚</p>
-<p align="center">
+<p align="center"> (rentry and strawpage links don't work! im going to fix those soon)
 
